@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @7Cps
+- 👀 I’m interested in Coding
+- 🌱 I’m currently learning How to script little things
+- 💞️ I’m looking to collaborate on No1
